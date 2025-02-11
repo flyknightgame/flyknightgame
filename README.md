@@ -34,7 +34,7 @@ Developed by Wabbaboy, **FlyKnight** evolved from a game jam project under the s
 
 ## Characters
 
-In **FlyKnight**, players assume the role of a squire of the order of the Flyknights, tasked with vanquishing the witch Lunamoth and lifting her curse. The game features various enemies, including ants, plants, and other creatures, each with unique abilities and challenges. Players can also encounter other characters during their journey, such as the swamp folk and other fighters summoned to help along the way. ([steamcommunity.com](https://steamcommunity.com/app/3108510/guides/?requiredtags%5B%5D=Walkthroughs&utm_source=chatgpt.com))
+In **FlyKnight**, players assume the role of a squire of the order of the Flyknights, tasked with vanquishing the witch Lunamoth and lifting her curse. The game features various enemies, including ants, plants, and other creatures, each with unique abilities and challenges. Players can also encounter other characters during their journey, such as the swamp folk and other fighters summoned to help along the way.
 
 ## [Free Download FlyKnight Game PC Windows Crack Torrent 🕹️](https://www.gamerepacks.com/online/flyknight/)
 ![WX20250211-164144@2x](https://github.com/user-attachments/assets/37bb49fc-9076-4ea7-bf3e-29f2c898d66e)
